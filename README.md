@@ -1,0 +1,1 @@
+# BlogParedesMendoza_2522IS
